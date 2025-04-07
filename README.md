@@ -8,5 +8,4 @@
 ![Screenshot 2025-04-07 at 1 09 15 AM](https://github.com/user-attachments/assets/745c8b4d-444a-4360-abaa-61b06087b720)
 ![Screenshot 2025-04-07 at 1 06 14 AM](https://github.com/user-attachments/assets/9cbc23b4-2614-4353-a690-652e2d06fb95)
 ![Screenshot 2025-04-07 at 12 56 03 AM](https://github.com/user-attachments/assets/e6125723-cc30-4d54-bd06-12a95680379e)
-![Uploading Screenshot 2025-04-07 at 12.44.05 AM.png…]()
-![Uploading Screenshot 2025-04-07 at 12.41.32 AM.png…]()
+
